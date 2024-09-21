@@ -1,1 +1,1 @@
-practice lang to hehee para sa github lang naman to brother hehe
+practice lang ng practice hanggang pumananaw hahaha
